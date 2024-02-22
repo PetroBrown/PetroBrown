@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PetroBrown
-- 👀 I’m interested in crpto drops
+- 👀 I’m interested in crypto drops
 - 🌱 I’m currently learning all crypto news
 - 💞️ I’m looking to collaborate on fitness apps 
 - 📫 How to reach me peterbrown@gmail.com
